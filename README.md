@@ -19,24 +19,6 @@ In this world of blight ya
 
 ## Project Data
 
-Exported to Logic. Edit: Nectar EQ
-
-FREE_HARD_XXXTENTACION_x_RONNY_J_x_JASIAH_DISTORTED_TRAP_BEAT_END_PROD._MYSTXRY-youtube-LiRT0Fx7lCo-251
-MYSTXRY BEATS
-
-MOTHNODE_Kiddar (was kidder, then kidda, then i was like “i want unique names and lore” so music video and accompanying content will extend the story beyond lyrics alone)
-
-/// UPLINK ESTABLISHED_
-„let them know we already on the brink
-themes of death pulling us out of sync aye
-approach so distinct, so distinct yeah” .
-
-This feels like one of these song vids on YouTube that loops the animation. .
-
-Did some additional audio editing of prototype HC_SG125 which was first named Kidder, then Kidda, now Kiddar since I want it to be lore related. Slang for a specific place in @hitechcrime universe. But shhh! Not telling just yet you #cyberpunk buffs :) . /// NODE STEMS_
-#aggrotrap #trapcore #trapmetal #prototype #metal #rap #trap #polskirap #darktrap #hitechcrime #universe #lore #cyber #futura #techwear #humanedge #red #cyberpunk2077 #cyberpunks #cyberpunktheme #nofuture #newfuture . /// ADD_
-I’d like to thank everyone for the words of support and kindness. Appreciate each and every one of you, you know who you are, Helve Operatives.
-
 **Title:** Kidder / **Featuring:** MOTHNODE
 
 **Production:** MYSTXRY / **Lyrics:** MOTHNODE
