@@ -1,6 +1,19 @@
-# HC_SG06_world_of_blight
+# MOTHNODE_ World of Blight
 Hitech Crime Single 'World of Blight'
 
+**Listen now:**
+
+## Project Data
+
+[MONACO/SAAF]
+
+**Title:** World of Blight / **Featuring:** x
+
+**Production:** x / **Lyrics:** x
+
+## Lyrics
+
+```
 I don't know what's right
 I don't know what's right
 In this world of blight 
@@ -10,58 +23,6 @@ I don't know what's right
 I don't know what's right
 In this world of blight 
 In this world of blight ya
-
-[MONACO/SAAF]
-
-# MOTHNODE_ Kiddar
-
-**Listen now:**
-
-## Project Data
-
-**Title:** Kidder / **Featuring:** MOTHNODE
-
-**Production:** MYSTXRY / **Lyrics:** MOTHNODE
-
-## Lyrics
-
-```
-Whoop Whoop Whoop
-
-Whoop Whoop Whoop
-
-Whoop Whoop Whoop
-
-Let them know we already on the brink
-Themes of death pulling us out of sleep 
-distant approach i'm missin' it
-
-Let them know we already on the brink
-Themes of death pulling us out of sleep  yeah
-distant approach i'm missing it
-let them think, what's so wrong
-playful rest, never plannin' bliss
-
-distant approach i'm missin' it
-
-Let the bass say that
-can i say that Cannet ey sa
-Let them know we already on the brink
-Themes of death pulling us out of sleep 
-to approach so Distinct so distinct
-
-Let somebody generate
-
-desolate desolate 
-comprehend this
-
-let them know we already on the brink
-themes of death pulling us out of sync aye
-approach so distinct, so distinct yeah
-
-this is hitech crime
-
-
 
 ```
 
