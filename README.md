@@ -7,7 +7,7 @@ Hitech Crime Single 'World of Blight'
 
 [MONACO/SAAF]
 
-**Title:** World of Blight / **Featuring:** x
+**Title:** World of Blight / **Featuring:** MOTHNODE
 
 **Production:** x / **Lyrics:** x
 
