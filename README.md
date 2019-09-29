@@ -9,7 +9,7 @@ Hitech Crime Single 'World of Blight'
 
 **Title:** World of Blight / **Featuring:** MOTHNODE
 
-**Production:** x / **Lyrics:** x
+**Production:** Retnik / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
